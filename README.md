@@ -9,28 +9,37 @@
 5. Pie (but not me)
 
 ## Dillon's Grubbin'
-1. Turkey Cranberry Sandwitch 
-2. mashed potatoes and a Turkey Cranberry Sandwitch 
-3. Pasta and a Turkey Cranberry Sandwitch 
-4. Beer and a Turkey Cranberry Sandwitch 
-5. Stuffing and a Turkey Cranberry Sandwitch 
-
-
-### Dillon's Wishlist 
-1. A brain 
-2. $20,000
-3. a macbook
-
-## Chuy's whishlist
-1. New graohics card
-2. A laptop
-3. Another tattoo
 
 1. Turkey Cranberry Sandwitch
 2. mashed potatoes and a Turkey Cranberry Sandwitch
 3. Pasta and a Turkey Cranberry Sandwitch
 4. Beer and a Turkey Cranberry Sandwitch
 5. Stuffing and a Turkey Cranberry Sandwitch
+
+### Dillon's Wishlist
+
+1. A brain
+2. $20,000
+3. a macbook
+
+## Chuy's whishlist
+
+1. New graohics card
+2. A laptop
+3. Another tattoo
+
+4. Turkey Cranberry Sandwitch
+5. mashed potatoes and a Turkey Cranberry Sandwitch
+6. Pasta and a Turkey Cranberry Sandwitch
+7. Beer and a Turkey Cranberry Sandwitch
+8. Stuffing and a Turkey Cranberry Sandwitch
+
+## Chris - a few of the things I want for the holidays:
+
+* Tacos.
+* Tasty tacos.
+* Other things... like tacos?
+* Maybe a cat-toy for my clawed beast.
 
 ## DemoGlizzy ThanksGiving Bonanza!!!
 
